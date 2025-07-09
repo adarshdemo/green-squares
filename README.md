@@ -4,6 +4,6 @@
 
 ### 2025-07-09
 
-"The best way to predict the future is to invent it." - Alan Kay
+Amazing: GitHub was built in just 3 months and launched in 2008!
 
-------
+---------
