@@ -4,6 +4,6 @@
 
 ### 2025-07-09
 
-"Simplicity is the ultimate sophistication." - Leonardo da Vinci
+"The best way to predict the future is to invent it." - Alan Kay
 
----
+------
