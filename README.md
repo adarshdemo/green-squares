@@ -4,6 +4,6 @@
 
 ### 2025-07-09
 
-💡 Tip: Version control everything. Git is your safety net and time machine.
+💡 Tip: Test early, test often. Bugs are cheaper to fix when caught early.
 
-------------------------
+---------------------------
