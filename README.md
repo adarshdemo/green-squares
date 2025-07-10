@@ -1,3 +1,1 @@
-testing part 2 #Custom #AI
-
-testing part 2 #Custom #AI
+SUCCESS TEST - Scheduled posts are now working perfectly with India timezone! #Custom #AI
