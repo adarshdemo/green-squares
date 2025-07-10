@@ -1,1 +1,1 @@
-🌟 Today's Inspiration: Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle. #Motivation #Success
+💪 Power Thought: Your limitation—it's only your imagination. Break through barriers and reach for the stars! #Mindset #Potential
