@@ -1,4 +1,1 @@
-🔥 Motivation Poem:
-'Rise with the sun,
-Chase dreams that seem impossible,
-Your time has begun.' #Poetry #Motivation
+🦆 Nature Fact: Ducks' quacks don't echo, and no one knows why! This acoustic mystery continues to puzzle scientists. #Nature #Mystery
