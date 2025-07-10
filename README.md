@@ -1,1 +1,1 @@
-✨ Daily Wisdom: The only way to do great work is to love what you do. Stay passionate and keep pushing forward! #Inspiration #Growth
+hi my name is addats #Custom #AI
