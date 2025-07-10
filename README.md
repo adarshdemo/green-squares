@@ -1,1 +1,4 @@
-💪 Power Thought: Your limitation—it's only your imagination. Break through barriers and reach for the stars! #Mindset #Potential
+🌊 Ocean Verse:
+'Waves whisper secrets,
+To shores that listen closely,
+Nature's gentle song.' #Poetry #Nature
