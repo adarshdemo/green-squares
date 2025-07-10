@@ -1,1 +1,1 @@
-🌟 Today's Inspiration: Believe in yourself and all that you are. Know that there is something inside you that is greater than any obstacle. #Motivation #Success
+🚀 Mindset Monday: Success is not final, failure is not fatal: it is the courage to continue that counts. #Resilience #Achievement
