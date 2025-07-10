@@ -1,1 +1,1 @@
-🦆 Nature Fact: Ducks' quacks don't echo, and no one knows why! This acoustic mystery continues to puzzle scientists. #Nature #Mystery
+Hi my self ayush #Custom #AI
