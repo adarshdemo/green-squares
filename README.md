@@ -1,1 +1,1 @@
-🌈 Daily Reminder: Difficult roads often lead to beautiful destinations. Keep moving forward! #Journey #Perseverance
+💪 Power Thought: Your limitation—it's only your imagination. Break through barriers and reach for the stars! #Mindset #Potential
