@@ -1,1 +1,1 @@
-🌈 Daily Reminder: Difficult roads often lead to beautiful destinations. Keep moving forward! #Journey #Perseverance
+✨ Daily Wisdom: The only way to do great work is to love what you do. Stay passionate and keep pushing forward! #Inspiration #Growth
